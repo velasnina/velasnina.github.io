@@ -1,6 +1,6 @@
 # **NINA | Velas Aromáticas**
 
-## Fragrâncias que transformam momentos ✦
+## Fragrâncias que transformam momentos. ✦
 
 
 
